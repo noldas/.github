@@ -4,7 +4,7 @@
 
 Noldas name is inspired by word from korean <strong>놀다</strong> (Nolda).
 
-The meaning behind nolda is play, so we use that word as inspiration and Noldas became our organization's name.
+The meaning of Nolda is <strong>Play</strong>, so we use that word as inspiration and <strong>Noldas</strong> became our organization's name.
 
 ## What we do
 
